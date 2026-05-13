@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Inkscape for macOS brush with Inkscape for macOS elite Brushes: export to SVG & asset management. Featuring export to SVG and asset management, it's the best
 
 
 
